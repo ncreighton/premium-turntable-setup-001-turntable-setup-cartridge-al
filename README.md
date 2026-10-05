@@ -1,0 +1,2 @@
+# premium-turntable-setup-001-turntable-setup-cartridge-al
+Stop second-guessing your cartridge alignment and risking record damage—this digital workshop turns turntable setup into a satisfying, repeatable craft.  This Notion template eliminates the guesswork and fear of costly mistakes by providing a structured, step-by-step process for aligning your cartridge and optimizing your turntable. Unlike generic
